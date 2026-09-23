@@ -1,0 +1,1 @@
+# Universal-yordamchilar-generics-asoslari
